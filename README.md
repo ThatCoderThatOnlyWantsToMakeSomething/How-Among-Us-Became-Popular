@@ -1,0 +1,3 @@
+# How-Among-Us-Became-Popular
+
+Do you want to know all about Among Us? Well you found the right person to tell you all of this...
